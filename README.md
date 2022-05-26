@@ -1,2 +1,5 @@
-# island-war-cheat-codes-unlimited-gems-hacks
-Island War Cheat Codes 2022 unlimited gems and money Hacks tips and tricks
+# Island War Cheat Codes 2022 unlimited gems and money Hacks
+
+Island War Cheat Codes 2022 unlimited gems and money Hacks tips and tricks - Arctic wolf (rare): a group of combat dogs that live in close neighbors with low life value, but are very fragile. This usually means attacking remote or support units first. Fire Mage (uncommon): a wizard who throws a fireball at an enemy, which will also damage nearby enemies. He travels alone, so any team that is good at playing at the back line is a big problem. Colossus (rare): a lonely stone giant who mocks nearby units and attacks him. This makes him a special tank and an asset to your long-range forces. You can view any unlocked units through the hero tab at the bottom of the screen, as well as the units you can find later. Heroes themselves take a while to unlock, and then you can find them, not merge them, but take them to raid or stay to defend your island. The heroes tab also allows you to view troop statistics and allow you to merge troops off board.
+
+<a href="https://growhunt.top/island-war/">Get here</a>
